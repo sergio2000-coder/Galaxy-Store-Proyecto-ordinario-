@@ -1,1 +1,1 @@
-# Galaxy-Store-Proyecto-ordinario-
+# Galaxy Store Proyecto ordinario
